@@ -2,7 +2,7 @@
 
 ![Project Image](https://ennediinvestmenttoken.com/wp-content/uploads/ct-logos/logo_1589653204d9f8bcad33349fcb54080e_2x.png)
 
-> Ennedi Investment Token es un proyecto que pertenece al holding empresarial Ennedi Investmen
+> Ennedi Investment Token es un proyecto que pertenece al holding empresarial Ennedi Investment
 
 ---
 
